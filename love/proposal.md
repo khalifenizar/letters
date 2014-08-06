@@ -1,7 +1,7 @@
 Marriage Proposal
 =================
 
-A letter I wrote as a prelude to my proposal to [Michelle](https://www.facebook.com/MiaShauri).
+A letter I wrote as a prelude to my proposal to [Michelle](https://www.facebook.com/MiaShauri). I managed to disappear to wait for her at [Vizcaya](http://vizcaya.org/) and arranged for this letter to be delivered to her. She said yes!
 
 
 > Tuesday, August 5th, 2014
