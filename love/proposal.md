@@ -8,7 +8,7 @@ A letter I wrote as a prelude to my proposal to [Michelle](https://www.facebook.
 >
 > Dear Michelle,
 >
-> As of yesterday, we've been together for 9 years. Not many would argue that it isn't a long time to be in love. Some marriages don't last this long. The thing is that, to be very honest, I feel like I've loved you for far longer than that.
+> As of yesterday, we've been together for 8 years. Not many would argue that it isn't a long time to be in love. Some marriages don't last this long. The thing is that, to be very honest, I feel like I've loved you for far longer than that.
 >
 > Ever since the first time I heard The Beatles' play "Michelle", I've been in love with the idea of a woman. This idea didn't come about from the lyrics, it was more like a notion. It was a moment of purity where what would soon become one of my favorite pieces of art tapped into something deeply personal and emotional. I fantasized about my idea: an elegant but playful, aloof but approachable, smooth but endeeringly awkward woman. A woman of such grace and intelligence that to be in her presence is to have all of my senses engaged in perfect symmetry. Even when I can't consciously understand her, being together seems to unveil a profound truth that makes sense of all the Cosmos. I longed to be with that woman and envelop her in my affection. I longed for that euphoria that two people in harmony can share.
 >
